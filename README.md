@@ -1,0 +1,1 @@
+# ametyevo-village
